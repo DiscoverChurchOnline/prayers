@@ -18,11 +18,11 @@ British Prime Minister __Keir Starmer__, and
 
 Thai Prime Minister __Paetongtarn Shinawatra__,
 
-We pray for the wisdom of God that they may make the right decisions. I also pray for their divine strength and spiritual health.
+We pray for the wisdom of God that they may make the right decisions. We also pray for their divine strength and spiritual health.
 
 We thank You, Lord, for bringing change to the politics of our nations. Thank You for changing the voices of influence to speak in agreement with Your Word. We ask You to send laborers, filled with the spirit of wisdom and might, to surround our leaders with godly counsel and advice. We also ask You to remove from positions of authority those who stubbornly oppose righteousness and replace them with other leaders who will follow You and Your appointed course for the nations.
 
-Your Word declares that “Blessed is the nation whose God is the Lord,” I receive Your blessing and declare with my mouth that Your people dwell safely in this land and they prosper abundantly. I give thanks that our government is upon Jesus’ shoulder, and knowledge is pleasant to our politicians. Discretion watches over them. Understanding keeps them and delivers them from the way of evil men. Lord, give them a heart to do Your perfect will, and direct their decisions for the benefit of the Gospel, churches and families. Expose corruption, evil plots, secret agendas, and purge our land of godless men like Esther did to Haman.
+Your Word declares that “Blessed is the nation whose God is the Lord,” We receive Your blessing and declare with my mouth that Your people dwell safely in this land and they prosper abundantly. We give thanks that our government is upon Jesus’ shoulder, and knowledge is pleasant to our politicians. Discretion watches over them. Understanding keeps them and delivers them from the way of evil men. Lord, give them a heart to do Your perfect will, and direct their decisions for the benefit of the Gospel, churches and families. Expose corruption, evil plots, secret agendas, and purge our land of godless men like Esther did to Haman.
 
 You said in Your Word that if Your people would humble themselves, and pray, and turn from their wicked ways, You would heal the land. So Lord, we repent for the sins of these nations. We ask that You would cleanse us and forgive us for idolatry, witchcraft and every kind of disobedience. Grant these nations a spirit of repentance and cover us with Your mercy. As we turn back to You, Lord, we believe the lands are being healed.
 
