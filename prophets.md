@@ -1,7 +1,7 @@
 # A Prophet’s Prayer
 (Based on A.W. Tozer’s Prayer 1897-1963)
 
-O Lord, we have heard your voice and the fear of God is before my eyes. You have called me to an awesome task in a grave and perilous hour. You are about to shake heaven and earth, the sea and dry land, all nations and Israel, that the things which cannot be shaken may remain (Haggai 2:6, 21, Heb 12:26).
+O Lord, we have heard your voice and the fear of God is before our eyes. You have called me to an awesome task in a grave and perilous hour. You are about to shake heaven and earth, the sea and dry land, all nations and Israel, that the things which cannot be shaken may remain (Haggai 2:6, 21, Heb 12:26).
 
 O Lord, our Lord, You have stooped to honor me to be Your servant. No man takes this honor upon himself except he who is called of God, just like Aaron was. You have ordained me to be Your messenger to them that are stubborn of heart and hard of hearing. They have rejected You the Master, and it is not expected that they will receive me, Your servant. My God, I shall not waste time deploring my weakness nor my inadequacy for the task. The responsibility is not mine, but Yours.
 
