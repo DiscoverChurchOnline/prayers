@@ -1,8 +1,8 @@
 # Warfare Prayer
 
-Heavenly Father, we bow in worship and praise before you. We cover ourselves with the blood of the Lord Jesus Christ as our protection. We surrender ourselves completely and unreservedly in every area of our lives to You. We take a stand against all the workings of satan that would hinder us in our prayer lives. We address ourselves only to the True & Living God and refuse any involvement of satan in our prayers.
+Heavenly Father, we bow in worship and praise before you. We cover ourselves with the blood of the Lord Jesus Christ as our protection. We surrender ourselves completely and unreservedly in every area of our lives to You. We take a stand against all the workings of satan that would hinder us in our prayer lives.
 
-Satan, we command you, in the Name of Jesus Christ, to leave our presence with all your demons. We bring the blood of the Lord Jesus Christ between you and us.
+Satan, we command you, in the Name of Jesus Christ, to leave our presence with all your demons. We bring the blood of the Lord Jesus Christ between you and us. We address ourselves only to the True & Living God and refuse any involvement of satan in our prayers.
 
 Heavenly Father, we worship You and give You thanks and praise. We recognize, by faith, that You are worthy to receive all glory and honor and praise. We renew our allegiance to You, and pray that the blessed Holy Spirit would enable us in this time of prayer. We are thankful, Heavenly Father, that You loved us from past eternity, and that You sent the Lord Jesus Christ into the world to die as our substitute. We are thankful that the Lord Jesus Christ came as our representative, and that through Him You have completely forgiven us; You have given us eternal life; You have made us the righteousness of God in Him, so that we are now reconciled. We are thankful that You have made us complete, and that You have offered Yourself to be our daily help and strength.
 
