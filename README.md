@@ -1,5 +1,5 @@
 # Prayers
-- [Church's Prayer](chruch.md)
+- [Church's Prayer](church.md)
 - [Nations' Prayer](nations.md)
 - [Prophets' Prayer](prophets.md)
 - [Warfare Prayer](warfare.md)
