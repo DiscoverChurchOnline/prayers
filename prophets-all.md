@@ -1,4 +1,4 @@
-# Prayer for all prophets
+# Prayer for All Prophets
 (Based on A.W. Tozer’s Prayer 1897-1963)
 
 O Lord, Your prophets have heard your voice, and the fear of God is before their eyes. You have called Your prophets to an awesome task, in a grave and perilous hour. You are about to shake heaven and earth, the sea and dry land, all nations and Israel, that the things which cannot be shaken may remain (Haggai 2:6, 21, Heb 12:26).
