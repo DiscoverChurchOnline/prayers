@@ -16,7 +16,7 @@ Canadian Prime Minister __Mark Carney__,
 
 British Prime Minister __Keir Starmer__, and
 
-Thai Prime Minister __Paetongtarn Shinawatra__,
+Thai Prime Minister __Phumtham Wechayachai__,
 
 We pray for the wisdom of God that they may make the right decisions. We also pray for their divine strength and spiritual health.
 
