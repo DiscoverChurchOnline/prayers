@@ -1,6 +1,6 @@
 # Pray for the Nations
 
-Heavenly Father, we come before You in the Name of Jesus on behalf of the nations. We pray for a shield of divine protection over these countries and for insight into and uncovering of all terrorist activity. We rebuke any spirit of fear and terror. It has no place on Earth among the saved.
+Heavenly Father, we come before You in the Name of Jesus on behalf of the nations. We pray for a shield of divine protection over the countries and for insight into and uncovering of all terrorist activity. We rebuke any spirit of fear and terror. It has no place on Earth among the saved.
 
 Father, You said the heart of the king is in the hand of the Lord, and like a river of water, You turn it whichever way You choose. So we ask You to direct the heart and mind of the
 
@@ -13,6 +13,8 @@ Israeli Prime Minister __Benjamin Netanyahu__,
 Japanese Prime Minister __Shigeru Ishiba__,
 
 Canadian Prime Minister __Mark Carney__,
+
+South Korean President __Jae-Myung Lee__,
 
 British Prime Minister __Keir Starmer__, and
 
