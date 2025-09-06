@@ -18,7 +18,7 @@ South Korean President __Jae-Myung Lee__,
 
 British Prime Minister __Keir Starmer__, and
 
-Thai Prime Minister __Phumtham Wechayachai__,
+Thai Prime Minister __Anutin Charnvirakul__,
 
 We pray for the wisdom of God that they may make the right decisions. We also pray for their divine strength and spiritual health.
 
