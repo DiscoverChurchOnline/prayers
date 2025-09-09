@@ -10,7 +10,7 @@ US President __Donald J. Trump__,
 
 Israeli Prime Minister __Benjamin Netanyahu__,
 
-Japanese Prime Minister __Shigeru Ishiba__,
+Japanese Prime Minister __???__,
 
 Canadian Prime Minister __Mark Carney__,
 
