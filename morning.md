@@ -1,7 +1,5 @@
-## MORNING PRAISE
-`Tip:` It is good to wake up in the morning with praise on our lips. We can make a decision to be joyful from the first second we get up. Listen to David! Psalm 5:3 My voice shalt thou hear in the morning, O LORD; in the morning will I direct my prayer unto thee, and will look up. Psalm 55:17 Evening, and morning, and at noon, will I pray, and cry aloud: and he shall hear my voice. Mark 1:35 (NIV) Very early in the morning, while it was still dark, Jesus got up, left the house and went off to a solitary place, where he prayed.
-
-`Pray:` The Lord God hath given me the tongue of the learned,
+## Morning Praise
+The Lord God hath given me the tongue of the learned,
 That I should know how to speak a word in season to him that is weary:
 He wakeneth me morning by morning,
 He wakeneth mine ear to hear as the learned.
