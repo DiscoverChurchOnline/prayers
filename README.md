@@ -1,7 +1,7 @@
 # Prayers
 - [Church's Prayer](church.md)
 - [Nations' Prayer](nations.md)
-- [Morning Prayer](morning.md)
+- [Morning Praise](morning.md)
 - [Prophets' Prayer (Pastor Steve)](prophets.md)
 - [Prophets' Prayer (all)](prophets-all.md)
 - [Warfare Prayer](warfare.md)
